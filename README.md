@@ -4,12 +4,19 @@ The best Krunker.io cheat available - KremCheats VIP!
 
 ✨ FEATURES:
 🎯 Advanced Aimbot with FOV Circle
+
 👁️ ESP Wall Hack with RGB Colors
+
 ⚡ Speed Hack (1-100x multiplier)
+
 🦘 Jump Hack (0-50x multiplier)
+
 🎯 No Recoil, Infinite Ammo
+
 🎨 Beautiful Glass UI
+
 ⚙️ Custom Keybinds
+
 🛡️ Anti-Detection
 
 💎 PRICING:
