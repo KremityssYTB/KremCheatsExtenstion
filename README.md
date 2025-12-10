@@ -1,6 +1,6 @@
-🔥 KremCheats VIP - Krunker.io Premium Cheat
+🔥 KremCheats VIP - Krunker.io & Fortnite Premium Cheat
 
-The best Krunker.io cheat available - KremCheats VIP!
+The best Krunker.io & Fortnite cheat available - KremCheats VIP!
 
 ✨ FEATURES:
 🎯 Advanced Aimbot with FOV Circle
@@ -46,4 +46,4 @@ Telegram: [t.me/kremityss]
 ⚠️ DISCLAIMER:
 This is for educational purposes only. Use at your own risk.
 
-#krunker #krunkerio #cheat #aimbot #esp #gaming
+#krunker #krunkerio #cheat #aimbot #esp #gaming #Fortnite
